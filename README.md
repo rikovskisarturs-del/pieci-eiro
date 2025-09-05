@@ -1,3 +1,3 @@
 # Pieci eiro
 Es Arturs veidošu funkciju par saskaitīšanu
-man patīk klingeri
+man patīk klingeriesesfesfs  tu klingers
